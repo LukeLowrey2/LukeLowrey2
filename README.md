@@ -1,6 +1,6 @@
 # Hello, Luke here.
 
-## Fullfilling my dream of coding. 
+## Fullfilling all my coding dreams.
 #### Full Stack Web Developer
 
 #### Graduate of FullStack Academy through University of San Diego 
