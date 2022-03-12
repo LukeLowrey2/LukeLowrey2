@@ -1,4 +1,4 @@
-# Hello, Luke here.
+# Hello, Luke here :]
 
 ## Fullfilling all my coding dreams.
 #### Full Stack Web Developer
