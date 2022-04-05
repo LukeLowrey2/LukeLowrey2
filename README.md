@@ -18,4 +18,4 @@
 
 
 
-#### Check out my LinkedIn https://www.linkedin.com/in/luke-lowrey-ii-99386167/
+#### Check out my LinkedIn https://www.linkedin.com/in/lukelowrey2/
